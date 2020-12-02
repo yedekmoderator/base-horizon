@@ -6,9 +6,6 @@ Bununla birlikte [utku.live](https://utku.live/) bu site de ki şeylere de göz 
 
 ### Destek ve İletişim için:
 
-http://base.utku.live/ | https://discord.gg/hgh7qgZ sunucu'nun özel ve normal davet linklerini kullanarak sunucuya gelebilir veya aşağıda ki yerlerden bana ulaşabilirsin.
+http://base.utku.live/ - https://discord.gg/hgh7qgZ sunucu'nun özel ve normal davet linklerini kullanarak sunucuya gelebilir veya aşağıda ki yerlerden bana ulaşabilirsin.
 
-__**Discord:**__ 289#1490
-__**Website:**__ https://utku.live/
-__**Skype:**__ live:.cid.5ee74ba5830a58b9
-__**Github:**__ https://github.com/268289
+__**Discord:**__ 289#1490 __**Website:**__ https://utku.live/ __**Skype:**__ live:.cid.5ee74ba5830a58b9 __**Github:**__ https://github.com/268289
