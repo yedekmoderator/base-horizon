@@ -8,4 +8,4 @@ Bununla birlikte [utku.live](https://utku.live/) bu site de ki şeylere de göz 
 
 http://base.utku.live/ - https://discord.gg/hgh7qgZ sunucu'nun özel ve normal davet linklerini kullanarak sunucuya gelebilir veya aşağıda ki yerlerden bana ulaşabilirsin.
 
-**Skype:**__ live:.cid.5ee74ba5830a58b9 
+**Skype:** live:.cid.5ee74ba5830a58b9 
