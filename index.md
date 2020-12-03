@@ -6,4 +6,4 @@ Bununla birlikte [utku.live](https://utku.live/) bu site de ki şeylere de göz 
 
 ### Destek ve İletişim için:
 
-"quake#1490", Discord Kullanıcı Adım ve Etiketim ile birlikte bana bu site hakkında ki görüşlerinizi ve sevmediğiniz şeyleri belirtebilirsiniz, başka çok fazla kullandığım iletişim uygulamaları var ama sıksık discord kullanıyorum, bana oradan ulaşabilirseniz çok mutlu olurum.
+"quake#1490", Discord kullanıcı adım ve etiketim ile birlikte bana bu site hakkında ki görüşlerinizi ve sevmediğiniz şeyleri belirtebilirsiniz, başka çok fazla kullandığım iletişim uygulamaları var ama sıksık discord kullanıyorum, bana oradan ulaşabilirseniz çok mutlu olurum.
