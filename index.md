@@ -6,6 +6,4 @@ Bununla birlikte [utku.live](https://utku.live/) bu site de ki şeylere de göz 
 
 ### Destek ve İletişim için:
 
-http://base.utku.live/ - https://discord.gg/hgh7qgZ sunucu'nun özel ve normal davet linklerini kullanarak sunucuya gelebilir veya aşağıda ki yerlerden bana ulaşabilirsin.
-
-**Skype:** live:.cid.5ee74ba5830a58b9 
+"quake#1490", Discord Kullanıcı Adım ve Etiketim ile birlikte bana bu site hakkında ki görüşlerinizi ve sevmediğiniz şeyleri belirtebilirsiniz, başka çok fazla kullandığım iletişim uygulamaları var ama sıksık discord kullanıyorum, bana oradan ulaşabilirseniz çok mutlu olurum.
